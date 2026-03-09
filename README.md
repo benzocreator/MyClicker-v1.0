@@ -1,5 +1,6 @@
 MYCLICKER – FAST AUTO CLICKER
 =============================
+💰 Want to support the developer? Buy it here → https://boosty.to/benzocompany/posts/a578f2d6-b03f-4f57-b9bc-0b9b130985d9?share=post_link
 
 Thank you for downloading MyClicker!
 
